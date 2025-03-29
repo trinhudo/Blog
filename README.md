@@ -1,2 +1,1 @@
-# blog
-Poetry and Photography
+# Trí Như
