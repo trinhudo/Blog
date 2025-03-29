@@ -1,6 +1,6 @@
 ---
 layout: default
-title: Trí Như - Thơ và Kỷ niệm 
+title: Thơ và Kỷ niệm 
 ---
 
 **TRÊN NẺO HOÀNG HÔN**  
