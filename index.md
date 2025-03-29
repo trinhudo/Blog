@@ -1,8 +1,9 @@
 ---
 layout: default
-title: Trên Nẻo Hoàng Hôn
+title: Trí Như - Thơ và Kỷ niệm 
 ---
 
+**TRÊN NẺO HOÀNG HÔN**  
 _những giòng thơ ta viết vội bên đời_
 
 ta về đâu ? những chiều chưa tắt nắng  
