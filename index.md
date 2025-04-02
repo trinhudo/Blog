@@ -12,9 +12,9 @@ có những ngày tuyết tan dường như vội
 một đêm thôi lại trắng cả đường về
 
 ta đã chờ xuân sang bao mùa cũ  
-xuân đà sang, sao lòng vẫn còn chờ  
+xuân đà sang, sao vẫn cứ đợi chờ  
 hỏi ta chờ có phải xuân lai khứ  
-hay mùa xuân thật sự tại lòng ta
+hay mùa xuân thật sự tại lòng ta  
 
 ôi chiều nay gió lạnh về qua ngõ  
 báo xuân sang cho khách lữ chạnh lòng  
